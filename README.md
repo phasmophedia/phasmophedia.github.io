@@ -1,1 +1,1 @@
-# endertrixxx.github.io
+# phasmophedia.github.io
